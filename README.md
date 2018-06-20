@@ -1,0 +1,1 @@
+# nnao45-logo2txt
